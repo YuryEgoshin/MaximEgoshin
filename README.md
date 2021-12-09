@@ -4,5 +4,5 @@
 - 🌱 I’m currently learning Software practices
 - 👯 I’m looking to collaborate on anything, pretty much
 - 💬 Ask me about whatever interests you
-
+- Hi everyone !!!!
 
